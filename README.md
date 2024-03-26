@@ -1,4 +1,4 @@
 # hi-hellow
 hi i am jaimeen.
 <br>
-Athor : jaimeen chauhan   
+Athor : jaimeen chauhan (jex)  
